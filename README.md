@@ -1,2 +1,0 @@
-# CJMMP
-Colegio
